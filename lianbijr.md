@@ -12,5 +12,8 @@ https://www.google.com/search?newwindow=1&q=%E8%81%94%E5%B8%81%E9%87%91%E8%9E%8D
 
 绑定手机需要联系客服更换（需手持）
 
-先款365 或者365 发余额号
-!(lianbijr)[https://raw.githubusercontent.com/advert-channel/adlist/master/src/lianbijr.jpg]
+先款365 或者365 发余额号  dalao例外
+
+联系tg @spamuser 迫生-.-
+
+![lianbijr](https://raw.githubusercontent.com/advert-channel/adlist/master/src/lianbijr.jpg)
