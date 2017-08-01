@@ -16,4 +16,4 @@ https://www.google.com/search?newwindow=1&q=%E8%81%94%E5%B8%81%E9%87%91%E8%9E%8D
 
 联系tg @spamuser 迫生-.-
 
-![lianbijr](https://raw.githubusercontent.com/advert-channel/adlist/master/src/lianbijr.jpg)
+https://raw.githubusercontent.com/advert-channel/adlist/master/src/lianbijr.jpg
